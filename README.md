@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Guilherme Alves do Nascimento or Guilhermedn. :grin:
+- 👋 Hi, I’m @Guilhermedn. :grin:
 - 👀 I’m interested in Programming.
 - 🌱 I’m currently learning PYTHON and JAVA.
 - 💞️ I’m looking to collaborate on learning in the area.
