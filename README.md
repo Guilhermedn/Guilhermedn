@@ -9,9 +9,9 @@
 
 ● ɪ’ᴍ ʟᴏᴏᴋɪɴɢ ᴛᴏ ᴄᴏʟʟᴀʙᴏʀᴀᴛᴇ ᴏɴ ʟᴇᴀʀɴɪɴɢ ɪɴ ᴛʜᴇ ᴀʀᴇᴀ. 📈
 
-● ʜᴏᴡ ᴛᴏ ʀᴇᴀᴄʜ ᴍᴇ: Guilhermealves38@hotmail.com 📧
+● ʜᴏᴡ ᴛᴏ ʀᴇᴀᴄʜ ᴍᴇ Guilhermealves38@hotmail.com 📧
 
-🌐 ***`Programming Student, Focused on Learning, Suggestions Are Always Welcome, I am always willing to learn Day after Day`*.** 🦾
+🌐 ***`Programming Student, Focused on Learning, Suggestions Are Always Welcome, I am always willing to learn Day after Day.`*** 🦾
 
 ● **LINKEDIN:**  :link:
 
